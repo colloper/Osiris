@@ -1,3 +1,1 @@
-Osiris Pro Fixed By Me
-
-Pls Credit Me If U Decide To Re-Leak.
+Osiris pro fixed, if you decide to re-leak go ahead and credit me.
